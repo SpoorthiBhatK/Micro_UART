@@ -1,0 +1,1 @@
+[VERIFICATION_PLAN](https://mirafra2-my.sharepoint.com/:x:/r/personal/spoorthibhat_mirafra2_onmicrosoft_com/Documents/MicroUART_TestPlan_SpoorthiBhatK_6935.xlsx?d=waa3fc73ac92a4d75bd6a0d312cb22318&csf=1&web=1&e=tVz8dq)
